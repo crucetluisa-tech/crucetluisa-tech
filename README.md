@@ -30,4 +30,10 @@ Atualmente, estou mergulhando no mundo da programação, focando em aprender as 
 ---
 
 ### 📫 Vamos nos conectar?
-[] | []
+- 💼 [LinkedIn](https://www.linkedin.com/in/luísa-rodrigues-049453401/)
+- 📧 [crucetluisa@gmail.com]
+
+---
+
+🖥️🎪💕
+  
